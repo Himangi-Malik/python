@@ -1,1 +1,1 @@
-# guys jindagi chalane ke liye python zaroori
+ guys jindagi chalane ke liye python zaroori
